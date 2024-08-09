@@ -1,4 +1,4 @@
-## Hi there 👋
+## ohh hi! hmmmm im just beginer in this platform... andyep you see nothing in here owo
 
 <!--
 **TakanashaTaryu/TakanashaTaryu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
