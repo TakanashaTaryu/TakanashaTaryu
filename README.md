@@ -1,5 +1,5 @@
-## ohh hi! hmmmm im just beginer in this platform... andyep you see nothing in here owo
-
+### ohh hi! hmmmm im just beginer in this platform... andyep you see nothing in here owo
+![nom](https://tenor.com/bBcrI.gif)
 <!--
 **TakanashaTaryu/TakanashaTaryu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
